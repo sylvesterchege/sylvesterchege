@@ -13,6 +13,6 @@
 - How to reach me: **njugunasylvesterchege@gmail.com**
   
 - Fun fact: a fun of most sports
-- **I have a dream- One day ITAJIPA**  
+- **I have a dream**  
   
   
